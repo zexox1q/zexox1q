@@ -11,7 +11,7 @@
 <img width="424" height="338" alt="image" src="https://github.com/user-attachments/assets/022b9755-5062-407d-9859-66a6c2180c59" />
 </p>
 
-<p align="center"> ${\textsf{\color{#2b105e} 𓊈𓏵𓊉 }}$ <a href="">main acc</a> ${\textsf{\color{#2b105e} 𓊈𓏵𓊉 }}$
+<p align="center"> ${\textsf{\color{#2b105e} 𓊈𓏵𓊉 }}$ <a href="https://github.com/A-ReGect">main acc</a> ${\textsf{\color{#2b105e} 𓊈𓏵𓊉 }}$
 
  <p align="center"><img width="20" height="20" alt="tumblr_9d8a9b9ef684be58143f1abd10471023_f60f3251_75" src="https://github.com/user-attachments/assets/fc8fc4f3-bf21-4466-897f-a7474897cd97" /> ${\textsf{\color{#130e33}  ໒ ꒰ྀི 𓈒⑅ᴗ͈ . ᴗ͈ ꒱ྀི১⠀ heavy ze kinnie + free cuds PLS⠀ೃ  ͡ໃ　 }}$ <img width="20" height="20" alt="tumblr_9d8a9b9ef684be58143f1abd10471023_f60f3251_75" src="https://github.com/user-attachments/assets/fc8fc4f3-bf21-4466-897f-a7474897cd97" />
 
